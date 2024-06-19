@@ -13,4 +13,4 @@ https://discord.gg/Qkhk7wZgNQ
 
 # Other projects
 https://drive.google.com/file/d/1ZyL5X1jk_eS1JlAT1FqmlG4Rpb4VNGYU/view?usp=sharing (Wave)
-https://discord.gg/wPBSZUy4yJ
+       https://discord.gg/wPBSZUy4yJ
