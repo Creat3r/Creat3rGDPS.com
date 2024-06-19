@@ -6,7 +6,8 @@ And Subscribe to my youtube channel!
 
 
 
-# Discord: https://discord.gg/Qkhk7wZgNQ
+# Discord: 
+https://discord.gg/Qkhk7wZgNQ
 
 
 
